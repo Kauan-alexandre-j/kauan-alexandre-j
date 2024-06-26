@@ -8,7 +8,7 @@ Meu nome é Kauan alaexandre
 
 ### Você pode entrar em contato comigo 📧
 
-
+instagram🔽
 @kauan_ale_043
       or
 justino.oliveira@escola.pr.gov.br
